@@ -1,0 +1,1 @@
+Good morning, I love love love slow mornings filled with tumeric lattes and reading well-thought out articles or an intriguing novel. Then, I love to go for a long walk while listening to a podcast and then cook a big brunch. Yummy!
